@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @a-mazed
+👋 Hi, I’m @a-mazed
